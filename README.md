@@ -1,5 +1,5 @@
 ### nbystndr
 
 - 🔭 I’m currently working on MSFT.
-- 🌱 I’m currently learning Music Mix and Arrangement.
+- 🌱 I’m currently learning 
 - 📫 How to reach me: nbystndr#outlook.com
